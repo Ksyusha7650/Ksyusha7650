@@ -1,1 +1,2 @@
-💻 JFIIDHDKJDDJDDDSKJDDK 🐹💥
+# Не переживай
+ты виновата сама
